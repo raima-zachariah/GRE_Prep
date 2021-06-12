@@ -1,0 +1,12 @@
+"Laws should not be rigid or fixed. Instead, they should be flexible enough to take account of various circumstances, times, and places."
+
+
+Law is a set of rules and regulations imposed by the civil authority in a nation to facilitate effective governance and to maintain order. The law is formulated by a group of well trained lawyers and members of the governing body after through ruminations and rigorous debates to accomodate various circumstances, times and places. This process although comprehensive, results in a somewhat rigid structure, changing which in-turn is an arduous process. 
+
+Proponents who have long touted the benefits of rigid laws claim that the ossified structure foolproofs the system from being abused by wanton actors who would exploit the loopholes in the law to break loose after committing hideous crimes. The last thing the judiciary system of the nation would want to tackle is criminals on the loose and crimes on the rise. 
+
+In addition to this, a flexible law means chaos. People when free to interpret the law in terms, favorable to them, will always do what they want ignorant of the repurcussions to themselves or the society. With no means to keep a check, this could mean the inevitable exploitation of resources or people. To exemplify, if a nation has a law passed against the misuse of natural resources which states that "Every citizen is bound to use the resources judicially failing which can lead to prosecution." This, although implies that people should use resources judicially, does not demarcate what a judicious use is and what isn't. Such a law is ambiguos and open to interpretation. Hence it would be difficult to enforce the same. 
+
+However, I acknowledge that a rigid law, passed by the authorities decades ago may not be all that relevant nowadays. It can be rightly argued that when times have changed, the irrelevant laws should be discarded or modified.  It is absurd to have an extant law which states that homosexual marriages are illeagal when being a part of the LGBTQ+ community is considered legal. Such rigid laws make it difficult to accomodate the changes in the society. 
+
+Various such examples can be enumerated to bolster the fact that making the law rigid can help bring about a structure to enable effective governance. A rigid law enables the lawyers and the civil body to implement measures to keep malicious activities in check. Nevertheless there should be a system in a place which can ease the cumbersome process of revising the law.

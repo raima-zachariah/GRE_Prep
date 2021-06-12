@@ -23,4 +23,4 @@ Additionally, the author implies that \<state the implications\>. To strengthen 
 
 Building upon the implication of the \<assumption\>, the author states that \<conclusion\>. (Give pointers to refute the argument)
 
-For these reasons, \<what you suggest has to be done\>. However, this author's argumentis not likely significantly persuade \<conclusion\>.
+For these reasons, \<what you suggest has to be done\>. However, this author's argument is not likely significantly persuade \<conclusion\>.
